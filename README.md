@@ -1,6 +1,7 @@
 ## Aselamu Aleykum 👋
 # 💫 About Me:
 Muslim | Chill guy | Dev & Hacker<br>
+### "Live as you wish, you will die one day."
 
 
 ## 🌐 Socials:
